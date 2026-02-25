@@ -1,2 +1,2 @@
 # SergioProjectPython
-non so cosa scrivere
+mi anno ammutulito e non posso più dire spid
