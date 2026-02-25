@@ -1,2 +1,2 @@
 # SergioProjectPython
-porco dio lo spid
+non so cosa scrivere
